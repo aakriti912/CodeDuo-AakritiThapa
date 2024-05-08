@@ -1,0 +1,2 @@
+# CodeDuo-AakritiThapa
+Spell list
